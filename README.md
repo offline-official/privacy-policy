@@ -101,4 +101,4 @@ We may update this Privacy Policy from time to time. Any changes will be effecti
 
 ## 9. Contact Us
 
-If you have any questions or concerns about this Privacy Policy or our data practices, please contact us at [support@offline-social.com](mailto:support@offline-social.com).
+If you have any questions or concerns about this Privacy Policy or our data practices, please contact us at [offlinehelp2025@gmail.com](mailto:support@offline-social.com).
